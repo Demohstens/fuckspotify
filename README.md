@@ -1,0 +1,2 @@
+# fuckspotify
+Spotify is bad 
